@@ -1,1 +1,2 @@
-# 25-555366-TK-62614_Adrian-Bagas_MagangGMRT
+Nama : Adrian Bagas Ananto
+NIM : 25/555366/TK/62614
